@@ -1,1 +1,1 @@
-Team lead: Chengetai Mtengo
+Team Lead: Chengetai Mtengo
